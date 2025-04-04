@@ -11,10 +11,5 @@ I am also a huge fan of exploring new places and trying out new cuisines. ✨
 I am confident that with my hardworking nature and eagerness to learn, I can make a valuable contribution to any organization. 
 
 Let's connect and explore how we can collaborate to make a positive impact in the world of technology. Cheers!🤝
-<Br>
-Here is my Linkedin_link-
-<Br>
-https://www.linkedin.com/in/isha-gupta-28b0702b5?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app
-<Br>
-(lets connect)
+
 
